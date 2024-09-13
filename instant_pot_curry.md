@@ -1,0 +1,5 @@
+- 2 yellow onions
+- 2 carrots
+- 3 Yukon gold potatoes
+- 184g of mild curry
+- enough broth to cover vegetables
